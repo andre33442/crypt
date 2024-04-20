@@ -1,4 +1,4 @@
-make 250k easy
+make 20K in 1 week of high multies using this pred
 
 
 
